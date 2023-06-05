@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @RumpleStiltzchen
 - 👀 I’m interested in ... Coding lol 
-- 🌱 I’m currently learning ... c++
-- 💞️ I’m looking to collaborate on ... whatever idk lol
+- 🌱 I’m currently learning ... EVERYTHING!
+- 💞️ I’m looking to collaborate on ... whatever
 - 📫 How to reach me ... Russell.glen.hunter@gmail.com
 
 <!---
